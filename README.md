@@ -26,7 +26,3 @@ https://i.postimg.cc/dVxTfRhN/Untitled.png
 **-Works for V1 and V2 -Pre-approve token**
 
 
-
-
-[Sellix.io  Shop](https://coinhacks.mysellix.io/)
-
